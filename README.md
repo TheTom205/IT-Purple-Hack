@@ -1,4 +1,4 @@
-# it purple hack
+# IT Purple Hack
 
 *MISIS and Mr. Smith team*
 
